@@ -38,4 +38,4 @@ Misi : Kami berkomitmen untuk memberikan layanan teknologi berkualitas tinggi de
 - Mobile : 081398696144
 
 
-# *Connect. Control. Secure. Unleash the Power of IoT!*
+# *Transform Your Tech Experience.!*
