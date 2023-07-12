@@ -1,5 +1,5 @@
 # Digital Minds Technology - 2023
-![Topologi Produk AC-10723](https://github.com/myahyasa/GatewatchApps/blob/cb03c002348983a52c64089e8118027b726cbb53/acc-002.png)
+![Topologi Produk AC-10723](https://images.interestingengineering.com/img/iea/4N61oxEQOJ/brain-user-interface-2.jpg)
 
 # *Building the Future with Tech!*
 
