@@ -17,19 +17,19 @@ Misi : Kami berkomitmen untuk memberikan layanan teknologi berkualitas tinggi de
 
 #### Jasa Web Company Profile : Kami menyediakan pembuatan website profesional dan menarik untuk perusahaan klien. Melalui desain yang responsif dan pengalaman pengguna yang intuitif, kami membantu klien meningkatkan kehadiran online mereka dan memperkuat citra merek.
 
-#### HR Management: Kami menawarkan solusi HR management yang efisien dan terintegrasi, membantu klien mengelola data karyawan, administrasi absensi, penggajian, dan manajemen kepegawaian secara keseluruhan.
+#### HR Management : Kami menawarkan solusi HR management yang efisien dan terintegrasi, membantu klien mengelola data karyawan, administrasi absensi, penggajian, dan manajemen kepegawaian secara keseluruhan.
 
-#### Payroll dan Absensi: Kami menyediakan sistem payroll dan absensi yang canggih untuk memudahkan pengelolaan gaji karyawan, pelacakan waktu, cuti, dan kehadiran secara akurat dan efektif.
+#### Payroll dan Absensi : Kami menyediakan sistem payroll dan absensi yang canggih untuk memudahkan pengelolaan gaji karyawan, pelacakan waktu, cuti, dan kehadiran secara akurat dan efektif.
 
 ### Keunggulan DigitalMinds :
 
-####  Keahlian Teknologi Terkini: Tim kami terdiri dari para ahli teknologi yang berpengalaman dan terus mengikuti perkembangan terkini dalam industri. Kami menerapkan teknologi terkini dan praktik terbaik untuk memberikan solusi yang inovatif dan efektif.
+####  Keahlian Teknologi Terkini : Tim kami terdiri dari para ahli teknologi yang berpengalaman dan terus mengikuti perkembangan terkini dalam industri. Kami menerapkan teknologi terkini dan praktik terbaik untuk memberikan solusi yang inovatif dan efektif.
 
-#### Fokus pada Kebutuhan Klien: Kami mengutamakan kebutuhan klien dan bekerja sama dengan mereka dalam setiap langkah. Kami mendengarkan dan memahami tantangan bisnis mereka untuk memberikan solusi yang disesuaikan dan memberikan nilai tambah yang signifikan.
+#### Fokus pada Kebutuhan Klien : Kami mengutamakan kebutuhan klien dan bekerja sama dengan mereka dalam setiap langkah. Kami mendengarkan dan memahami tantangan bisnis mereka untuk memberikan solusi yang disesuaikan dan memberikan nilai tambah yang signifikan.
 
-#### Desain yang Menarik: Kami menggabungkan keahlian teknis dengan desain yang menarik untuk menciptakan pengalaman pengguna yang unggul. Kami percaya bahwa desain yang baik adalah kunci untuk meningkatkan interaksi dan keterlibatan pengguna.
+#### Desain yang Menarik : Kami menggabungkan keahlian teknis dengan desain yang menarik untuk menciptakan pengalaman pengguna yang unggul. Kami percaya bahwa desain yang baik adalah kunci untuk meningkatkan interaksi dan keterlibatan pengguna.
 
-#### Keandalan dan Kehandalan: Kami berkomitmen untuk memberikan layanan yang andal dan tepat waktu kepada klien kami. Kami memastikan bahwa setiap proyek diselesaikan dengan standar kualitas yang tinggi dan sesuai dengan jadwal yang ditentukan.
+#### Keandalan dan Kehandalan : Kami berkomitmen untuk memberikan layanan yang andal dan tepat waktu kepada klien kami. Kami memastikan bahwa setiap proyek diselesaikan dengan standar kualitas yang tinggi dan sesuai dengan jadwal yang ditentukan.
 #### DigitalMinds adalah mitra yang handal bagi perusahaan yang ingin mengoptimalkan operasi mereka melalui solusi teknologi yang inovatif dan terpercaya.
 
 ### Contact :
